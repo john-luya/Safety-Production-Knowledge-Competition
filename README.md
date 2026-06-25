@@ -1,1 +1,1 @@
-# My Ph.D Guide
+# Erasmus Mundus Application Strategies
